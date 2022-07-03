@@ -1,2 +1,3 @@
-# VALIDATOR-AMAZON
-sukii sukki sukkii dam dam amazon
+# amzval
+
+https://youtu.be/b4nbh7BXDB4
